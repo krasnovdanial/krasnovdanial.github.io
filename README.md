@@ -1,0 +1,1 @@
+# krasnovdanial.github.io
